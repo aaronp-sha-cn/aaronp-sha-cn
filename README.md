@@ -2,7 +2,7 @@
 - 👀 I’m interested in Linux & HSIA System & Wireless & Switch Network System.
 - 🌱 I’m currently learning Linux & network authentication
 - 💞️ I’m looking to collaborate on relevant developers
-- 📫 How to reach me ： aaronp@easolutions.com.cn
+- 📫 How to reach me ： 343607147@qq.com
 - 😄 Pronouns: https://weibo.com/u/2605919635
 - ⚡ Fun fact: 
 
